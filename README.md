@@ -1,6 +1,7 @@
 # Amir-Eloksha
-Never Stop Dreaming 
-Amir Eloksha - Creative Project Manager & Visionary Marketer
+Never Stop Dreaming
+
+Im Amir Eloksha - Creative Project Manager & Visionary Marketer
 
 With over 6 years of experience in sales, marketing, and web design, I have dedicated my career to transforming creative ideas into tangible results. My journey has been marked by relentless pursuit of excellence, consistently striving to exceed expectations and stay ahead of industry trends.
 
